@@ -1,6 +1,7 @@
 <h1>2Я ХОДКА MORPHIN</h1>
 
 Есть гидро,- а есть сульфат,- а может быть то и то!
+Дезинфекция зубной боли в квадрате!
 
 ![Морфин - отрывок из научной цифровой книги](https://github.com/selecitevww/MORPHIN-PROTIVODEYSTVIE-BIOORGANIZM/blob/main/250px-Morphine-from-xtal-3D-balls.png)![Морфин - отрывок из научной цифровой книги](https://github.com/selecitevww/MORPHIN-PROTIVODEYSTVIE-BIOORGANIZM/blob/main/Morphin_-_Morphine.svg.png)
 
