@@ -1,5 +1,5 @@
 <h1>2Я ХОДКА MORPHIN</h1>
-
+Есть гидро а есть сульфат, а может быть то и то
 ![Морфин - отрывок из научной цифровой книги](https://github.com/selecitevww/MORPHIN-PROTIVODEYSTVIE-BIOORGANIZM/blob/main/250px-Morphine-from-xtal-3D-balls.png)![Морфин - отрывок из научной цифровой книги](https://github.com/selecitevww/MORPHIN-PROTIVODEYSTVIE-BIOORGANIZM/blob/main/Morphin_-_Morphine.svg.png)
 
 ![Морфин - ВикипедиЯ](https://github.com/selecitevww/MORPHIN-PROTIVODEYSTVIE-BIOORGANIZM/blob/main/%D0%9C%D0%BE%D1%80%D1%84%D0%B8%D0%BD%20%E2%80%94%20%D0%92%D0%B8%D0%BA%D0%B8%D0%BF%D0%B5%D0%B4%D0%B8%D1%8F.pdf)
