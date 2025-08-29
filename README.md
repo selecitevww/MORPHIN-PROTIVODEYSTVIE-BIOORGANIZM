@@ -5,6 +5,7 @@
 
 Есть гидро,- а есть сульфат,- а может быть то и то!
 Дезинфекция зубной боли в квадрате!
+У меня пол пасти разье***, мне не интересно!
 
 ![Морфин - отрывок из научной цифровой книги](https://github.com/selecitevww/MORPHIN-PROTIVODEYSTVIE-BIOORGANIZM/blob/main/250px-Morphine-from-xtal-3D-balls.png)![Морфин - отрывок из научной цифровой книги](https://github.com/selecitevww/MORPHIN-PROTIVODEYSTVIE-BIOORGANIZM/blob/main/Morphin_-_Morphine.svg.png)
 
